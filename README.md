@@ -4,7 +4,7 @@
 
 ---
 
-### Made with ❤️ by [Dulanjali Senarathna](https://www.linkedin.com/in/dulanjali-senarathna/)
+### Made with ❤️ by [Dev Master(devmaster929@gmail.com)]
 
 ---
 
